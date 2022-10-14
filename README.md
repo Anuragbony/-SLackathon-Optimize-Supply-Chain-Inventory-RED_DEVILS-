@@ -1,1 +1,1 @@
-# SLackathon-Optimize-Supply-Chain-Inventory-RED_DEVILS-
+# SLackathon-Optimize-Supply-Chain-Inventory-RED_DEVILS
